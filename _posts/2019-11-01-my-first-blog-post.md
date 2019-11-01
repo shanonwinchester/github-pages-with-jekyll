@@ -1,0 +1,1 @@
+New blog for training.
